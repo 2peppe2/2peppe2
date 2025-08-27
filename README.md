@@ -1,4 +1,4 @@
-🧑🏼‍🎓 2nd-year software engineering student at Liu. 
+🧑🏼‍🎓 3rd-year software engineering student at Liu. 
 
 👨🏼‍💻 Learning full-stack development
 
